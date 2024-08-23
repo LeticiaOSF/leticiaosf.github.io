@@ -9,8 +9,8 @@
 Busco aprimoriar meus conhecimentos na área de Recursos Humanos, podendo contribuir com o departamento na empresa e garantir uma boa gestão de pessoas.
 
 ## Experiência Profissional
-- **Auxiliar de Recursos Humanos** | *Assaí Atacadista*
-  - Fevereiro 2025 - Atualmente
+- **Auxiliar de Recursos Humanos** \| *Assaí Atacadista*
+  - *Fevereiro 2025 - Atualmente*
   - Processo de R&S;
   - Controle de Jornada de Trabalho;
   - Integraçao;
